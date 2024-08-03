@@ -1,1 +1,4 @@
 # customer_segmentation
+fnmgldngjld
+mlkgmdnflgn
+fdklgnerlrkrgmer
